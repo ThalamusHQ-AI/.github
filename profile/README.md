@@ -26,5 +26,5 @@ Proposal teams spend 40%+ of their time battling disorganized content, repetitiv
 ● Enterprise Teams Handling RFPs  
 
 ### Get Started
-Try Thalamus AI – [Visit our website](thalamushq.ai) 
+Try Thalamus AI – [Visit our website](www.thalamushq.ai) 
 
